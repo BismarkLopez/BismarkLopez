@@ -27,7 +27,7 @@
 
 📝 roles en el ámbito: desarrollador... líder.... emprendedor... programador freelance... y en un futuro quién sabe ☺️
 
-📫 Contacto: **josebismark12@gmail.com**
+📫 Contacto: **6037-3073**
 <!--Intro end-->
   </p>
 <br>
